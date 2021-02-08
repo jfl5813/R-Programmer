@@ -24,3 +24,22 @@ STAT 480 is a class about SAS Programming, sort of like STAT 184 described above
 ![](https://images-na.ssl-images-amazon.com/images/I/31sLo1tWh7L._SX373_BO1,204,203,200_.jpg)
 
 
+### Hobby: Swimming
+
+One of my hobbies is swimming. I used to go to the Phoenixville YMCA to swim until the pandemic hit last year in March. You can find the benefits of swimming from this [website](https://www.betterhealth.vic.gov.au/health/healthyliving/swimming-health-benefits).
+
+![Source: Swim Teach Home](https://www.swim-teach.com/images/benefits-of-swimming.jpg)
+
+### Hobby: Watch Movies
+
+Another hobby of mine is to watch TV. I usually watch movies on Friday nights. I like famous, classic movies and am very intrigued about [some facts related to famous movies](https://brightside.me/wonder-films/18-facts-you-didnt-know-about-famous-movies-382360/).
+
+
+![Source: shutterstock.com](https://image.shutterstock.com/z/stock-vector-smiling-preschool-boy-kid-sitting-on-cushion-and-watching-film-on-tv-about-dog-and-butterfly-kid-1101658958.jpg)
+
+
+
+
+
+
+
